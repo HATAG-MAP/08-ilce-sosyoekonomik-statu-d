@@ -1,0 +1,1 @@
+# 08-ilce-sosyoekonomik-statu-d
